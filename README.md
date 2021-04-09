@@ -1,2 +1,0 @@
-# Olympic_College_Cornealius_Brown_CIS_155_Spring_2021
-For quarter work
